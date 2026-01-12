@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **rathinb745@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** TheRDGroupOflndustries
+- 🔭 **I’m currently working on:** Arinova Studio
 - 🌱 **I’m currently learning:** New technologies
 - 📫 **How to reach me:** rathinb745@gmail.com
 - 😄 **Pronouns:** Rathin
